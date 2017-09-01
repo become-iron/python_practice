@@ -1,0 +1,1 @@
+[https://courses.openedu.ru/courses/course-v1:ITMOUniversity+PADS+spring_2017/info](https://courses.openedu.ru/courses/course-v1:ITMOUniversity+PADS+spring_2017/info)
